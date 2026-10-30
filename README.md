@@ -54,5 +54,5 @@
 自己动手，告别代付被骗风险：
 
 👉 **[点击这里注册 CoreGold，立即开卡体验](https://app.coregold.io/signup?invite_code=ADvlj9b)**
-![Uploading fec98f64d238d8e8158311c5e0098def.png…]()
+ 
 
